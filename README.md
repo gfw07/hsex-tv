@@ -1,6 +1,6 @@
 # 好色™ TV
 https://hsex.tv
-（已经和谐,DNS污染无法访问）
+（已经和谐,DNS污染国内无法访问）
 
 https://haosetv.win
 （最新地址）
